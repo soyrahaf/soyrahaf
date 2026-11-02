@@ -1,5 +1,5 @@
 
-# Hi, I'm Rahaf! 👋
+# Hi, I'm Rahaf! 
 
 ### Artificial Intelligence Student | PNU
 
